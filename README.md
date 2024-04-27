@@ -1,4 +1,4 @@
-[![Header](https://ibb.org.ru/images/2024/04/27/pups.png)](https://funpay.com/users/10539594/)
+[![Header](https://ibb.org.ru/images/2024/04/27/imagea5aae45ec8c42436.png)](https://funpay.com/users/10539594/)
 
 
 ## 🏆 Stats
